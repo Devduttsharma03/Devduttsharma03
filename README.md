@@ -2,7 +2,7 @@
 
 📫 How to reach me devduttsharma6002@gmail.com
 
-⚡ Fun fact A BDE Turned IT Professional
+⚡ Fun fact A Sales Development Representative Turned Data Analyst.
 
 Connect with me:
 Devduttsharma03/Devduttsharma03
